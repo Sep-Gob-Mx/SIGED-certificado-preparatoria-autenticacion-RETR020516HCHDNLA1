@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RETR020516HCHDNLA1
+RETR020516HCHDNLA1
